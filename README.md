@@ -1,1 +1,1 @@
-Everyone's taste bugs are different. myTaste takes other peoples influence out of the food rating experience, and allows you to remember personal favorites, and not so favorites.
+Everyone's taste buds are different. myTaste takes other peoples influence out of the food rating experience, and allows you to remember personal favorites, and not so favorites.
